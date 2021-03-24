@@ -1,0 +1,1 @@
+just use the prefabe and change the setting as you like
